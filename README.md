@@ -36,11 +36,13 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Articles to be enquired of in the visitation of the moste Reuerend father in God, Matthew, by the su
+ARTICLES to be enquired of in the visitation of the moste Reuerend father in God, MATTHEW, by the su
 #####Body#####
-Articles to be enquired of in the visitation of the moste Reuerend father in God, Matthew, by the su
+
+1. Articles to be enquired of, in the Uisitation of the moste Reuerende Father in God, MATTHEW, Archebyshop of Canterbury, In the yeare of our Lorde, GOD M.D.LXIII.
+
 #####Back#####
-Articles to be enquired of in the visitation of the moste Reuerend father in God, Matthew, by the su
+Imprinted at London by Reginalde Wolfe, Anno Domini M.D.LXIII.
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
