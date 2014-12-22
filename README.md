@@ -36,7 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-ARTICLES to be enquired of in the visitation of the moste Reuerend father in God, MATTHEW, by the su
+
 #####Body#####
 
 1. Articles to be enquired of, in the Uisitation of the moste Reuerende Father in God, MATTHEW, Archebyshop of Canterbury, In the yeare of our Lorde, GOD M.D.LXIII.
